@@ -14,7 +14,10 @@ I hope to reduce it to less than half an hour a day, except for the study videos
 4.Set aside half an hour every day to learn English. Communication is really important.
 I don't want other people to be affected by my poor spoken English.
 
-5.Last but not least, hope to meet my soulmate.
+5.Cooking, yes, cooking something delicious is also something I like to do, 
+because I think there will be a lot of times I need to cook in the future. I can't resist eating.
+
+6.Last but not least, hope to meet my soulmate.
 
 
 
