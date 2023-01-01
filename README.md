@@ -1,6 +1,6 @@
 Hey, guy. It was an honor to meet here.
 
-#In order to become a better self, 2023 will do these things.
+In order to become a better self, 2023 will do these things.
 
 1.Learn an hour a day related to the job, code quality and azure resources.
 2.Practice guitar for half an hour or an hour. I love music, 
@@ -15,4 +15,4 @@ I don't want other people to be affected by my poor spoken English.
 
 
 
-**Thanks again for meeting you. This wonderful fate!
+Thanks again for meeting you. This wonderful fate!
