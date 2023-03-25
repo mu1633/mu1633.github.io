@@ -23,3 +23,8 @@ because I think there will be a lot of times I need to cook in the future. I can
 
 
 Thanks again for meeting you. This wonderful fate!
+
+
+
+
+也许，在我们的人生中会遇见那样一个人，他/她突然闯入我们的视线，仿佛身上罩着一层炫目的光，一向自以为是的我们突然手足无措、自惭形秽，那种心跳过速是我们一生永远无法忘怀的悸动。
